@@ -1,0 +1,1 @@
+Keng Lernitas Ekosistem Assets
